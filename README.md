@@ -12,7 +12,7 @@
 
 - 👨‍💻 All of my projects are available at [https://raktim-portfolio.web.app](https://raktim-portfolio.web.app)
 
-- 📫 How to reach me **raktimchowdhury#9@gmail.com**
+- 📫 How to reach me **raktimchowdhury39@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
